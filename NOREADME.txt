@@ -9,6 +9,6 @@
      _      | |       | |      \ \     / /   | |        |_|
     \ \_____/ /       | |       \ \___/ /    | |         _
      \_______/        |_|        \_____/     |_|        |_|
-     no hate in newgrounds
+     hate in newgrounds
 
 Is a fill file and why you opened this file, go nosy
