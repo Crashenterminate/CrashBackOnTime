@@ -11,4 +11,4 @@
      \_______/        |_|        \_____/     |_|        |_|
      no hate in newgrounds
 
-Is a fill file and because you opened this file, go nosy
+Is a fill file and why you opened this file, go nosy
